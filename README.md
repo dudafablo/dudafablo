@@ -15,4 +15,4 @@ Nome é eduarda
 
 ![](https://media1.tenor.com/m/AQQS6bMiRB8AAAAC/flamengo-segue-o-lider.gif)
 
-![](https://media1.tenor.com/m/AQQS6bMiRB8AAAAC/flamengo-segue-o-lider.gif)
+![](https://github.com/user-attachments/assets/8db39b62-3740-41c8-bad0-8bd50ff30cbb)
